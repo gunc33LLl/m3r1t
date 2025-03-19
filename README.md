@@ -19,5 +19,4 @@
 
     <p>Meritking, her geçen gün büyüyen kullanıcı kitlesi ile sektördeki yerini sağlamlaştırıyor. 🌟 Eğlenceli ve kazanç dolu bir bahis deneyimi için Meritking’in güncel giriş adresini takip edin ve avantajlardan faydalanın!</p>
 
-    <p><a href="https://t.me/+vT5xydT9LLBlMzA0" title="Meritking Giriş Adresi">🔗 Meritking Giriş İçin Hemen Tıklayın!</a></p>
-</div>
+    <p><a href="https://t.me/+vT5xydT9LLBlMzA0" title="Meritking Giriş Adresi">🔗 Meritking Giriş İçin Hemen Tıklayın!</a></p></div>
